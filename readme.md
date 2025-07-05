@@ -42,4 +42,4 @@ Jika ada pertanyaan, saran, atau ingin berdiskusi lebih lanjut, silakan hubungi:
 
 ---
 
-Salam.
+Salam Bintang.
